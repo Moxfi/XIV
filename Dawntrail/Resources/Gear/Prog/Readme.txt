@@ -1,1 +1,0 @@
-To be filled with Dawntrail WAR resources!
